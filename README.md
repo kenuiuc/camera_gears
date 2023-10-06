@@ -9,3 +9,5 @@
 - [Sigma 85/1.4](https://item.jd.com/10060989850033.html), 3200
 - [Sigma 70-200/2.8](https://item.jd.com/10039661541641.html), 4700
 - [Sigma 150-600/5-6.3](https://item.jd.com/10061077740818.html), 4500
+
+## Total 29,800 CNY
