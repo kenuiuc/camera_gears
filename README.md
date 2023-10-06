@@ -11,3 +11,5 @@
 - [Sigma 150-600/5-6.3](https://item.jd.com/10061077740818.html), 4500
 
 ## Total 29,800 CNY
+
+![camera gears](pictures/ken_camera_gears.jpg)
