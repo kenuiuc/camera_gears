@@ -1,7 +1,7 @@
 # My Camera Gears
 - [Canon G1X II](https://item.jd.com/57183010405.html), 1800
-- [Canon 5D2](https://item.jd.com/10034303372138.html), 2100
-- [Sigma 50/1.4](https://item.jd.com/10026732061807.html), 1300
+- [Canon 5D2](https://item.jd.com/61549024519.html), 2100
+- [Sigma 50/1.4](https://item.jd.com/67332365847.html), 1300
 - [Laowa 100/2.8 Macro](https://item.jd.com/10041300660010.html), 2700
 - [Laowa 15/4 Macro](https://item.jd.com/10041349105776.html), 2000
 - [Sigma 24-70/2.8](https://item.jd.com/67327722390.html), 2900
